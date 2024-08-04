@@ -1,0 +1,1 @@
+Here you can find miniature models of loads of chess elements.
